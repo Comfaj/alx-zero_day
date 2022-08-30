@@ -1,1 +1,1 @@
-Eat for the journey is far
+Eat for the journey is far.
